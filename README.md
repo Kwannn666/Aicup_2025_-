@@ -1,1 +1,1 @@
-# Aicup_2025_-
+# Aicup_2025_SinoPac
